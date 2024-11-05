@@ -44,4 +44,25 @@
 
 ---
 
-* Vedas are श्रुति ( what is heard ) vs other religious texts which are स्मृति ( what is remembered )
+* Vedas
+    * are श्रुति ( what is heard ) vs other religious texts which are स्मृति ( what is remembered )
+    * are अपौरुषेय ( not of a man ) and impersonal, authorless
+    * are sacred sounds and texts revealed to ancient sages during deep meditation
+
+
+---
+
+* Vedas chant ???
+
+---
+* आस्तिक , नास्तिक ???
+
+---
+
+* veda means -> knowledge, wisdom
+
+---
+
+* तुरीय ???
+
+---
