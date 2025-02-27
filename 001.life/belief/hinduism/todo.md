@@ -1,2 +1,14 @@
 https://en.wikipedia.org/wiki/Brahmacharya
 https://en.wikipedia.org/wiki/%C4%80%C5%9Brama_(stage)
+https://en.wikipedia.org/wiki/Dharma
+https://en.wikipedia.org/wiki/%E1%B9%9Ata
+https://en.wikipedia.org/wiki/%C5%9Aruti
+https://en.wikipedia.org/wiki/Puru%E1%B9%A3%C4%81rtha
+https://en.wikipedia.org/wiki/Bhakti
+https://en.wikipedia.org/wiki/Puja_(Hinduism)
+https://en.wikipedia.org/wiki/Yajna
+https://en.wikipedia.org/wiki/Shaivism
+https://en.wikipedia.org/wiki/Vaishnavism
+https://en.wikipedia.org/wiki/Shaktism
+https://en.wikipedia.org/wiki/Smarta_tradition
+https://en.wikipedia.org/wiki/History_of_Hinduism
