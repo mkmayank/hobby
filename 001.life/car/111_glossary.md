@@ -5,5 +5,3 @@
 ### `cc`
 * `1 litre = 1000cc`
 *
-
-https://auto.howstuffworks.com/engine.htm
